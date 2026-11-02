@@ -58,5 +58,5 @@ Data is only as valuable as the decisions it drives. Based on the evidence, I pr
 <div align="center">
   <i>"High sales volume must be paired with strategic pricing and disciplined discounting to ensure true profitability."</i>
   <br><br>
-  <b>📬 Let's Connect:</b> <a href="mailto:tzyad3763@gmail.com">tzyad3763@gmail.com</a>
+  <b>📬 Let's Connect:</b> <a href="mailto:contact@tariqjawad.com">contact@tariqjawad.com</a>
 </div>
